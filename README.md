@@ -17,5 +17,3 @@ I like coming up with fresh application ideas and product ideas. I communicate k
 - 💬 Discuss with me about **Web development, Java, JavaScript, Python, Problem Solving:grey_exclamation:**
 
 - 📫 Where to find me **shakthimahendrat@gmail.com**📨
-
-## Getting in Touch with me😇 
